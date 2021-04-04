@@ -20,6 +20,6 @@ make sense of. That sort of meditation is invaluable.
 
 There are so many things we feel like we *should* do, but the things we
 *actually do* reveal who we really are. Indulging your fancy is kind of what
-makes us whole. It's kind of beautiful, the way we take care of ourselves the
+makes us whole. It's kind of beautiful, the way we take care of ourselves
 quietly, in the ways we need to. Do the things you need to do. The rest will
 wait.
