@@ -9,7 +9,7 @@ doing, instead.
 
 Me? I spend way too much time lolligagging in the kitchen. I'm not a fancy
 cook, and definitely not a fast one, but it doesn't matter. Time in the kitchen
-is quiet therapy. When you work at lot with a computer, in a made up world,
+is quiet therapy. When you work a lot with a computer, in a made up world,
 making something with your hands is especially rewarding. The virtual world is
 limitless, but lacks tactile satisfaction. There's catharsis in gathering
 ingredients; working them with the knife; sautéeing vegetables. Can you smell
