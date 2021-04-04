@@ -7,7 +7,7 @@ you're doing a really good job. For the rest of us, though, let me tell you
 something: I don't really care what you're not doing. I care what you *are*
 doing, instead.
 
-Me? I spend way too much time lolligagging in the kitchen. I'm not a fancy
+Me? I spend way too much time lollygagging in the kitchen. I'm not a fancy
 cook, and definitely not a fast one, but it doesn't matter. Time in the kitchen
 is quiet therapy. When you work a lot with a computer, in a made up world,
 making something with your hands is especially rewarding. The virtual world is
