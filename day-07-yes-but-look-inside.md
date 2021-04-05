@@ -20,7 +20,7 @@ It's sometimes said that we "live in a postcard" here, and if you've ever
 watched the sunset ignite the clouds over the Olympics, you know what I mean.
 
 I spent a few years in a honeymoon with my new home, on a journey of discovery.
-Everything was new and exiciting. I was going to new places and meeting new
+Everything was new and exciting. I was going to new places and meeting new
 people. After a while, though, it became familiar. I found my regular spots,
 and I more or less had a set of people I knew. I'd driven past downtown on the
 Viaduct 1,000 times. The city began to feel like a pair of comfortable jeans.
