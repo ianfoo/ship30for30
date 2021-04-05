@@ -37,3 +37,5 @@ the one to start walking the path toward where you want to go.
 
 15 years later, I'm still inching along, step by step, ever hopeful, looking at
 the mountains and putting one foot in front of the other.
+
+![Space Needle](img/day-07-space-needle.jpg)
