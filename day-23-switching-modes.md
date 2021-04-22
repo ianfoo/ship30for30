@@ -2,11 +2,11 @@
 
 I'm lounging on my couch right now.
 
-"So?"
+_"So?"_
 
 I haven't been doing that a lot lately.
 
-"Okay."
+_"Okay."_
 
 Let me explain. Historically, when I've been on my couch, it meant I was
 watching something on TV. Not that uncommon, I suspect. I mean, there's so much
