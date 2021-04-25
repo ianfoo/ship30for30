@@ -17,11 +17,13 @@ day: the day when we're suddenly "adults"; the day we understand everything
 that we imagined being an adult making it through the world takes.
 
 That day never comes, though. And we never understand all the things we thought
-we would need to, and instead learn --those things we never knew existed
-thought we'd have to think about. It all gets less clear, even. The further we
-go, the more we see; and the more we see, the more unlikely any of this seems.
-What becomes clearer is that we live in a bubble of illusion, a bubble that,
-through collective agreement, allows us to ignore the absurdity.
+we would need to, and learn about all the things we need to know that we'd
+never even thought about. We learn what struggle really means, and that it's
+always present to some degree. And as if to mock our naive thought that
+everything would suddenly become clear, it actually all gets less clear, even.
+The further we go, the more we see; and the more we see, the more unlikely any
+of this seems. What becomes clearer is that we live in a bubble of illusion, a
+bubble that, through collective agreement, allows us to ignore the absurdity.
 
 Sometimes we get shoved out of our bubbles, though, dissociated enough from the
 illusion that it sort of breaks down before our eyes. Time stops, or at least
