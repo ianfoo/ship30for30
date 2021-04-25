@@ -9,7 +9,7 @@ course it's weird.
 Sure, that's all fair.
 
 But really, let's think about it for a minute. This life _is_ so weird. How do
-we even get to where we are? I mean, it stars off strangely enough. We show up
+we even get to where we are? I mean, it starts off strangely enough. We show up
 on a rock, in space, naked and clueless. We observe and adopt the thinking of
 whoever or whatever has most of our attention through our formative years,
 until we either reject it or internalize it. As children, we wait for a magical
