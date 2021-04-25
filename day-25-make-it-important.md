@@ -1,7 +1,7 @@
 # Make it Important
 
 A couple days ago I finished a series of bass guitar lessons I'd been taking. I
-say "finished," because though this class has wrapped up, you know there's no
+say "finished," because this class has wrapped up, but you know there's no
 finishing when you're trying to become more proficient in a given craft--maybe
 especially when it comes to artistic pursuits. You could say that I've finished
 starting, because there is and always will be so much more to do.
